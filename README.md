@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+## WELL HELLOOOOOO TOO YOU AS WELL MY FRIEND FROM THE LEFT COAST...!! ##
 <!--
 **HooHooE73/HooHooE73** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
